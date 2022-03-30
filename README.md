@@ -1,0 +1,1 @@
+# kosullu_IfadelerVeKodBloklari
